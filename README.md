@@ -1,2 +1,0 @@
-# carta
-carta de hotdoks
